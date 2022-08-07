@@ -14,4 +14,4 @@ Saved vegetable model
 https://drive.google.com/file/d/1_AJIlZyGXclyzFVlP2YsVcpBk-kHVnbp/view?usp=sharing
 
 Video Demo
-https://drive.google.com/file/d/1UGvMfrF7vC-YWUR66GgkW_OOvjVGv85w/view?usp=sharing
+https://drive.google.com/file/d/1Gg2b2mSuOK34MykpHzVSxtHR9KAgOWBB/view?usp=sharing
